@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Crocomonkevr Or cocomonke
-  I have diffeent personas in gt
+  I have diffrent personas in gt
   
 - 👀 I’m interested in ... Vr games recording ghost hunts in gt and making friends :)
 - 🌱 I’m currently learning ... how to do math i suck at it 
